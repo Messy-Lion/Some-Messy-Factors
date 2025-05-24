@@ -1,4 +1,3 @@
-![Apology of MTJJ, part 6](https://github.com/user-attachments/assets/4bf54676-e5d9-4f85-b2fa-ffef0983754a)![Apology of MTJJ, part 5](https://github.com/user-attachments/assets/72cc60d2-52d6-4957-b5f6-ebd15a5ef3d8)# Some-Messy-Factors-about-Luoxiaohei
 ## A Brief Introduction
 The Legend of (Luoxiao)Hei is an animation from China, written and directed by a Chinese independent director MTJJ(really named ZHANG Ping(章平)). The Animation itself tells a rather boring story about the adventures and daily life of Luo Xiaohei, a black cat spirit.
 This animation is long-term highly regarded by fan-toxic as "A flawless jade", the reason why they are keen on bullying anyone who gives lower rates. Enraptured by the toxic fandom that protects the Hanmuchunhua corporation limited, everyone in this company is 1000% blabbermouth, also known as trolls that makes troubles on the social media.
